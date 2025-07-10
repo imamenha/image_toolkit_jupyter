@@ -102,7 +102,7 @@ Silakan open issue atau pull request ya! Senang bisa berkolaborasi 🙌
 
 ## 📫 Kontak
 
-Bisa DM saya via [LinkedIn](https://linkedin.com/in/yourname) atau email ke: `i.nurhadianto@gmail.com`
+Bisa DM saya via [LinkedIn](https://www.linkedin.com/in/imamnurhadianto) atau email ke: `i.nurhadianto@gmail.com`
 
 ---
 
